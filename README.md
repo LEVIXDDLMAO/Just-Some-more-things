@@ -8,6 +8,6 @@ Thank you Levi for being a good friend, you were & are an amazing person, I'm so
 With love & respect, and all of my sorrows.. -MemeHoovy
 
 # More thoughts
-even if you broke our promise, I forgive you, but you need help, as you said, you would get the help need, witch you really need no matter you gave me time to think, I thought about it, talked about with my girlfriend. she had tons of good reason to forgive you, we all make mistakes, like me i fucked up with posting anything about this, it really hurt. so i had to give it off my chest this dosen't mean i hate you as i stated alot i dont pick sides because you fucked up and the trollers did too, I forgive you, you are like a brother to me, i dont want anything to happen to you,
+even if you broke our promise, I forgive you, but you need help, as you said, you would get the help need, witch you really need no matter you gave me time to think, I thought about it, talked about with my mother. she had tons of good reason to forgive you, we all make mistakes, like me i fucked up with posting anything about this, it really hurt. so i had to give it off my chest this dosen't mean i hate you as i stated alot i dont pick sides because you fucked up and the trollers did too, I forgive you, you are like a brother to me, i dont want anything to happen to you,
 
 -Levi
